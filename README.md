@@ -20,11 +20,6 @@ Climate Risk<br />
 ![image](https://github.com/user-attachments/assets/a9738f93-cd0a-4abe-8d83-ed62bf8d4526)
 ![image](https://github.com/user-attachments/assets/686c834a-b673-4287-b11f-69523f4991a6)
 
-ESG<br />
-![image](https://github.com/user-attachments/assets/343c4c1e-903c-4373-8275-372b361453e5)
-![image](https://github.com/user-attachments/assets/c219f922-75e9-4b60-916a-1dcc71d3f58c)
-![image](https://github.com/user-attachments/assets/ab7d516d-ed9e-437d-977f-cc22c2db0821)
-
 
 
 
