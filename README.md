@@ -22,6 +22,10 @@ Climate Risk<br />
 ![image](https://github.com/user-attachments/assets/3a742623-40b9-4b97-8c4a-c9e882f13153) ![image](https://github.com/user-attachments/assets/59f0b7ce-0d5b-455e-a90b-bfcc338100ab)
 ![image](https://github.com/user-attachments/assets/43c74905-710c-4271-841d-560d26bbcd74) ![image](https://github.com/user-attachments/assets/55e87052-1594-4c8c-b3a3-eb9f5cc45eb4)
 
+Environment issues
+![image](https://github.com/user-attachments/assets/8a7f29fd-94c5-41ca-918b-c7aeae24e819)
+
+
 
 
 
